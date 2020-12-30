@@ -1,2 +1,5 @@
-# pubgmobile-thumbnail
-Pubg Mobile Free Thumbnail
+# Pubg Mobile Free Thumbnail + PSD
+
+Discord: HellorD#5727
+
+
